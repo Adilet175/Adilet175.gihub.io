@@ -1,1 +1,1 @@
-# Adilet175.gihub.io
+# Adilet175.github.io
